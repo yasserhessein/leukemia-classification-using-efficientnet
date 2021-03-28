@@ -35,4 +35,12 @@ Gupta, A., & Gupta, R. (2019). ALL Challenge dataset of ISBI 2019
 
 
 
+If you want help plz contact me
+
+Yasserhesseinshakir@yahoo.com
+
+https://www.linkedin.com/in/yasir-hussein-314a65201/
+
+https://www.kaggle.com/yasserhessein
+
 
